@@ -35,12 +35,20 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A notable discouery of coosenage Now daily practised by sundry lewd persons, called connie-catchers,
+
+1. To all my good frends he•lth.
+
 #####Body#####
 
-1. How a Cookes wife in Lhndon did lately serue a Colliar for his cosenage.
+1. THE ARTE OF CONNI-CATCHING.
 
-1. H•• a flax•wi•e in London s•ru•d a coos••ng Collier.
+1. The art of Cros-biting.
+
+1. A PLEASANT DISCOVERIE of the cosenage of Colliars.
+
+    _ How a Cookes wife in Lhndon did lately serue a Colliar for his cosenage.
+
+    _ H•• a flax•wi•e in London s•ru•d a coos••ng Collier.
 
 **Types of content**
 
